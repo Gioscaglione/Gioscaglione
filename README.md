@@ -1,5 +1,5 @@
 
-# Hey, I'm Giovanna!
+# Hey, I'm Giovanna! 👋🏻
  
  &nbsp;
  &nbsp;
