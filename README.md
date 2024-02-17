@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gioscaglione04@gmail.com**
 
-- 📄 Know about my experiences [I'm a studant of systems development working on a mobile application for my final paper!](I'm a studant of systems development working on a mobile application for my final paper!)
+- 📄 Know about my experiences I'm a studant of systems development working on a mobile application for my final paper!
 
 - ⚡ Fun fact **I'm passionate about soccer since I was a little kid, so my childhood was divided from playing soccer or being in front of a computer trying to learn more things about this universe.**
 
